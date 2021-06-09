@@ -1,1 +1,3 @@
-# Surya-Teja-Chatrathi
+Hey 👋, I'm Surya Teja Chatrathi!
+
+
